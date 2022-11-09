@@ -1,5 +1,4 @@
-##long way down
-## Sherriffff.github.io
+## Long way down
 
 #EDUCATION
 University of Massachusetts Amherst          Jan.2021-Jan.2024
